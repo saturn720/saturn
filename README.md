@@ -8,7 +8,7 @@
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀⠀   ⠀ ⠀ ⠀ ⠀ ⠀⠀   ⠀  [ata](https://lovestrucken.atabook.org) ⠀ ⠀ ⠀ ⠀  ⠀ [other links soon.](url)
 <details> 
 <summary>SMT</summary>
-♡ wifies . ♡ Vani
+♡ wifies . [♡ Vani](https://github.com/doekei)
 </details>
 <details>
 <summary>oomfies</summary>
